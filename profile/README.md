@@ -1,1 +1,1 @@
-We are a small company based in germany developing software products
+We are a small company based in germany developing software
