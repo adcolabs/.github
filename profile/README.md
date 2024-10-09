@@ -1,1 +1,1 @@
-We are a small company based in germany developing software
+Adcolabs creates software and digital solutions
